@@ -1,4 +1,4 @@
-### Howduy 👋
+### Hi there 👋
 
 My twtr account: https://twitter.com/aioilight
 
